@@ -1,60 +1,34 @@
-# Greeting
+# Greetings!
 Welcome!
-i Made Photoshop Pro Cracked Version!
+i Made Photoshop Pro Cracked Version! (Which is deprecated since it was 2-3 years ago)
 
-# How to install?
-Just Go to realeases and click to Photoshop.exe and voliaaa!
+# How do i install it?
+You dont need to... just download zip from the code, extract it launch Photoshop.exe and you're done!
 
-# key in Program
+# Whats the key inside the program?
 Key: 91425
 
+# Does it has virus?
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-# it has virus?
-
-No
+n-n-no????
 
 # is it fake? 
 
-Nes
+NO????
 
-# Nes is No Yes?
+# Why is it deprectaed?
 
-Yes
+Because it was made 2 years ago and will not be updated anymore (f**k you photoshop cracked)
+
+# Can we take over this project?
+
+Do what ever you want with it, hack it, steal it, claim it as your own, edit it, do anything you want, i dont care
+Just notice theres no source code
+
+# Will there more programs like this?
+
+Kinda, idk ill see
+
+# Any other questions?
+
+Type in Issues tab
